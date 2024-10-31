@@ -1,1 +1,1 @@
-# Projected Future Variability of Tropical Cyclone Activity in the Western North Pacific
+# Projected future variability of Tropical Cyclone activity in the Western North Pacific
